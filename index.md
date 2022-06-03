@@ -16,7 +16,7 @@ Linkedin: [link](https://www.linkedin.com/in/ctyd)
 - Again, a bit of Mathematics
 
 # Aims
-- 4A\*s in A Levels (Mathematics, Further Mathematics, Physics, Computer Science)
+- 4A*s in A Levels (Mathematics, Further Mathematics, Physics, Computer Science)
 - Oxford Maths and Computer Science degree! If not then Imperial hopefully.
 - Integrate into UK community...
 ```
